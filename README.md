@@ -1,2 +1,2 @@
-# XT.COM-Referral-Code-in-2025-697VR8-40-Commision-
+# XT.COM Referral Code in 2025: 697VR8 (40% Commision)
 By applying "697VR8" you will get a 60% off on trading fees. Share your referral code with your friends and earn 60% ...
